@@ -4,4 +4,4 @@ readme is readme
 
 
 pele , ronaldo , messi , maradona is the GOAT
-the OG LEGENDS & GOATS = xhavi , insta , R9 , rohinaldio , rivaldo , kaka , ozil , neymar , suwaraz , rakitiz 
+the OG LEGENDS & GOATS = xhavi , insta , R9 , rohinaldio , rivaldo , kaka , ozil , neymar , suwaraz , rakitiz , and many more
