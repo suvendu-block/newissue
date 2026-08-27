@@ -3,5 +3,5 @@ new this new
 readme is readme
 
 
-ronaldo is the GOAT
-pele 
+pele , ronaldo , messi , maradona is the GOAT
+the OG LEGENDS & GOATS =
