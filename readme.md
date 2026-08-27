@@ -4,4 +4,4 @@ readme is readme
 
 
 pele , ronaldo , messi , maradona is the GOAT
-the OG LEGENDS & GOATS =
+the OG LEGENDS & GOATS = xhavi , insta , R9 , rohinaldio , rivaldo , kaka , ozil , 
